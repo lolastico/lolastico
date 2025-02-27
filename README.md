@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Actuellement en formation de découverte en marketing digital et développement web,<br>👯 je recherche un stage de 91 heures entre le 04 Mars et le 20 Mars 2025 pour valider mes acquis !<br>🤝 passionnée par le partage de connaissance et les comportements humains,<br>🌱 j'alimente ma curiosité avec des cours en ligne d'OpenClassRoom.<br>💬 Ask me about : mon élevage de phasme <br>⚡ Fun fact : j'ai déjà possédé un élevage de phasmes en primaire 
+🔭 Actuellement en formation de découverte en marketing digital et développement web,<br>👯 je recherche une alternance pour l'année 2025 !<br>🤝 passionnée par le partage de connaissances et les comportements humains,<br>🌱 j'alimente ma curiosité avec des cours en ligne d'OpenClassRoom.<br>💬 Ask me about : mon élevage de phasme <br>⚡ Fun fact : j'ai déjà possédé un élevage de phasmes en primaire 
 
 
 ## 🌐 Socials:
